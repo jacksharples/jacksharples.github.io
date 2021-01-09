@@ -7,7 +7,11 @@ date:   2020-01-09
 
 
 
-A friend of mine, we’ll call him Buddy,  recently wed in Texas, a COVID hotspot. I told my family about the wedding and how I’d like to go, but I didn’t feel it was right, considering I’m subjecting them to the virus. Their response was, “fuck no, you’re not going.” And that was that. I felt bad, but I had a built in excuse to decline an event which I did not want to attend. A month prior to the wedding, I had an extremely uncomfortable conversation with Buddy that I would have to decline. A few days before the wedding date, I decided to call and check in with him. Buddy told me that a week before the wedding 40% of invitees cancelled. He was angry and perplexed saying, "everyone knew COVID wasn't going away. I don’t understand why people waited until the last minute to cancel." Although I gave one month’s notice, I couldn’t say much as he was fuming and I did not want to have another uncomfortable conversation considering that I too cancelled. I tried to awkwardly console him which was a futile effort. So this brings me to the question: why do people suck at responding to invitations?
+A friend of mine, we’ll call him Buddy,  recently wed in Texas, a COVID hotspot. I told my family about the wedding and how I’d like to go, but I didn’t feel it was right, considering I’m subjecting them to the virus. Their response was, “fuck no, you’re not going.” 
+
+And that was that. I felt bad, but I had a built in excuse to decline an event which I did not want to attend. A month prior to the wedding, I had an extremely uncomfortable conversation with Buddy that I would have to decline. A few days before the wedding date, I decided to call and check in with him. Buddy told me that a week before the wedding 40% of invitees cancelled. He was angry and perplexed saying, "everyone knew COVID wasn't going away. I don’t understand why people waited until the last minute to cancel." 
+
+Although I gave one month’s notice, I couldn’t say much as he was fuming and I did not want to have another uncomfortable conversation considering that I too cancelled. I tried to awkwardly console him which was a futile effort. So this brings me to the question: why do people suck at responding to invitations?
 
 
 #### Whhhy?
