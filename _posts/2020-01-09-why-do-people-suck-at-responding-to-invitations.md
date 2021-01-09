@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title:  "Why Do People Suck At Responding to Invitations?"
