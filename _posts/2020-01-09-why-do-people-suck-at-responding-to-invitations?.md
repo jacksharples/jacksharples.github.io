@@ -31,4 +31,4 @@ If you’re part of the invited party, first bask in the glow of having a social
 
 
 
-*Trent Huber
+*Trent Huber*
