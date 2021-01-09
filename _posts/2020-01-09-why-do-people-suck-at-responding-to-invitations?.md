@@ -20,7 +20,9 @@ Although I gave one month’s notice, I couldn’t say much as he was fuming and
 
 The logical reason is that these, especially weddings, are uncomfortable topics. We all want to go to these events during normal situations, but don’t want to under current conditions. 
 
-Weddings and large events are huge celebrations and life events. It is considered a faux pas to decline if you are a part of the wedding party unless you have a legitimate reason. If someone is still having a wedding during a pandemic, they likely are downplaying the virus or have succumbed to a sunk-cost fallacy in which they feel they have already put in too much energy, money, etc. to back out now. 
+Weddings and large events are huge celebrations and life events. It is considered a faux pas to decline if you are a part of the wedding party unless you have a legitimate reason. 
+
+If someone is still having a wedding during a pandemic, they likely are downplaying the virus or have succumbed to a sunk-cost fallacy in which they feel they have already put in too much energy, money, etc. to back out now. 
 
 Taking all of this into account, there is considerable pressure to attend, and sometimes the organizers don’t understand this when people are opposed. Many times we hope that things will change in the future, so we want to wait until we’re absolutely certain. 
 
@@ -40,13 +42,20 @@ Through prospect theory, we would rather gamble with having a slight probability
 
 ### So what can people do about it?
 
-Organizer:
-Besides the obvious answer of not having a wedding or equivalent gathering in a pandemic, we can apply this to non-pandemic situations as well. By moving the deadline for an RSVP back a few weeks, you’re giving yourself a buffer. In addition, normalizing behavior by saying that it’s understandable if those invited can’t attend will help to spread out declined invitations so it’s not all at the last minute. Nudging people by sending out reminders consistently will facilitate decision-making. It will also help to highlight the numerous people who have already responded. If a large number of people have not responded, don’t bring this up in a reminder, as it can normalize that behavior.
+##### Organizer:
+Besides the obvious answer of not having a wedding or equivalent gathering in a pandemic, we can apply this to non-pandemic situations as well. By moving the deadline for an RSVP back a few weeks, you’re giving yourself a buffer. 
+
+In addition, normalizing behavior by saying that it’s understandable if those invited can’t attend will help to spread out declined invitations so it’s not all at the last minute. Nudging people by sending out reminders consistently will facilitate decision-making. 
+
+It will also help to highlight the numerous people who have already responded. If a large number of people have not responded, don’t bring this up in a reminder, as it can normalize that behavior.
 
 
-Attendee:
-If you’re part of the invited party, first bask in the glow of having a social life. If you know you’re not going, cancel immediately and don’t delay. This will bring you relief and make you look much better compared to any last minute cancellations. If you’re on the fence, mark a due date prior to the invitation’s requested date and make a decision by then. If you’re on the fence during a pandemic, DON’T DO IT. Decline the invitation, pat yourself on the back, and buy that pair of shoes you’ve been eyeing all quarantine with the money you saved even though you know damn well you’ll only be wearing slippers for the next year.
+##### Attendee:
+If you’re part of the invited party, first bask in the glow of having a social life. If you know you’re not going, cancel immediately and don’t delay. This will bring you relief and make you look much better compared to any last minute cancellations. 
 
+If you’re on the fence, mark a due date prior to the invitation’s requested date and make a decision by then. 
+
+If you’re on the fence during *a pandemic*, DON’T DO IT. Decline the invitation, pat yourself on the back, and buy that pair of shoes you’ve been eyeing all quarantine with the money you saved even though you know damn well you’ll only be wearing slippers for the next year.
 
 
 *Trent Huber*
