@@ -6,7 +6,9 @@ date:   2020-01-05
 
 Before reading further, ask yourself:
 
-Have you ever wondered about how tax brackets affect your total income? Ok I know that sounds boring. Let me ask in a way that is *even more* boring:
+Have you ever wondered about how tax brackets affect your total income?
+
+Ok I know that sounds boring. Let me ask in a way that is *even more* boring:
 
 Do you ever wonder whether allowing your income to increase into a higher tax bracket would cause all of your earnings to be taxed at a higher rate?
 
