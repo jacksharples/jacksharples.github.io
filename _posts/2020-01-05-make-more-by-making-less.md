@@ -12,7 +12,7 @@ Do you ever wonder whether allowing your income to increase into a higher tax br
 
 I recently overheard a conversation between two nurses that were discussing how they didn't want to work overtime because the high overtime bonus would put them into a higher tax bracket and they would end up making less than if they had just stuck to their normal hours.
 
-Sound absurd?   It is absurd, however[these ladies are not alone in thier mistaken judgement](https://www.fool.com/taxes/2019/01/11/the-most-misunderstood-thing-about-income-taxes.aspx):
+Sound absurd?   It is absurd, however [these ladies are not alone in thier mistaken judgement](https://www.fool.com/taxes/2019/01/11/the-most-misunderstood-thing-about-income-taxes.aspx):
 
 "Some mistakenly believe that if you earn a single additional dollar that takes you up to the 22% bracket, it'll cost you an extra 10 percentage points in taxes on every penny of your income."
 
@@ -43,4 +43,4 @@ Perhaps there is inherent distrust of the people making the tax laws.
 An experiment might be designed to test how people respond to marginal tax rate and election prediction models with a scale that gauges how confident people are in their responses. There might also be a timer during participant responses that can give a measure of the connection between response time and accuracy, similar to the other CRT experiments.
 
 
-*by Jack Sharples*
+*Jack Sharples*
