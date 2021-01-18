@@ -10,7 +10,7 @@ Have you ever wondered about tax brackets? Ok I know that sounds boring. Let me 
 
 Do you wonder whether allowing your income to increase into a higher tax bracket would cause all of your earnings to be taxed at a higher rate?
 
-Other people certainly think this. https://www.fool.com/taxes/2019/01/11/the-most-misunderstood-thing-about-income-taxes.aspx
+[Other people certainly think this.](https://www.fool.com/taxes/2019/01/11/the-most-misunderstood-thing-about-income-taxes.aspx)
 
 Unfortunately this understanding is incorrect. 
 
